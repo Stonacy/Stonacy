@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Stonacy
-- 👀 I’m interested in minecraft redstone and technical engineering
-- 🌱 I’m currently learning about minecraft mechanics
-- 💞️ I’m looking to collaborate on minecraft engineering groups and technical smps
-- 📫 How to reach me: add me in discord: onex#2002 twitter: stonacy001
+- 👀 I’m interested in minecraft redstone, commands and building
+- 🌱 I’m currently learning to improve in minecraft even more than average
+- 💞️ I’m looking to collaborate on someone to play with in mc
+- 📫 How to reach me: add me in discord: onex#6723 make sure to verify yourself so i know it's not a bottle 
 -
 
 <!---
